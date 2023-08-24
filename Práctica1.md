@@ -21,3 +21,4 @@ Estudio una Ingenieria en desarrollo de software interactivo y videojuegos, eleg
 | Instagram | warcilac |
 | Mail | cdmx2301@amerike.edu.mx |
 | cel | 55513586998 |
+ 
